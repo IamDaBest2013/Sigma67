@@ -1,1 +1,1 @@
-# Sigma67
+# SIGMA67
